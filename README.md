@@ -11,7 +11,7 @@
 - 💬 Ask me about genomics sequencing and pipelines
 - 📫 How to reach me: woltera202@potsdam.edu
 - 😄 Pronouns: her/she
-- ⚡ Fun fact: I love to code in the morning with a good cup of coffee
+- ⚡ Fun fact: Im only here for the genetics!!!
 
 Find me on the web:
 https://genomicsjive.com/
